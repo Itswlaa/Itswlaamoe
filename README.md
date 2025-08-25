@@ -15,4 +15,4 @@
 
 
 ## 📫 Connect with Me
-- 📧 wlaamohammed60@egmail.com
+- 📧 wlaamohammed60@gmail.com
